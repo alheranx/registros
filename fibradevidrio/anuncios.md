@@ -14,7 +14,8 @@
 2. [México Tele](https://www.mexicotele.com/ver/ingenierÍa-y-proyectos-en-fibra-de-vidrio/58b5895fa5f3577f0e431854/)
 3. [Chimalhuacán Aki](http://chimalhuacan.aki.com.mx/empresa/ingenieria-y-proyectos-en-fibra-de-vidrio.html)
 4. [User Exp](http://userexp.net/proyectosenfibradevidrio.com.html)
-
-
-
+5. [Automoviles BBB](https://automoviles.guiabbb.mx/0586185/Ingenier%C3%ADa_y_Proyectos_en_Fibra_de_Vidrio)
+6. [Hot Frog](https://www.hotfrog.com.mx/empresa/ingenieria-y-proyectos-en-fibra-de-vidrio)
+7. [Yellow Place](https://yellow.place/en/ingenier%C3%ADa-y-proyectos-en-fibra-de-vidrio-nezahualcóyotl-mexico)
+8. [Guialis](http://nezahualcoyotl.guialis.com.mx/datos/ingenieria-y-proyectos-en-fibra-de-vidrio/6361942)
 
